@@ -1,2 +1,2 @@
 # MCA
-\[Enter your responses to Week 1, tasks 2 and 3 here\]
+\[The theme for my dataset is music from the video game franchise Final Fantasy. I chose this theme \]
